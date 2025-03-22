@@ -1,0 +1,2 @@
+# Mordzia
+MÓJ NAS ZAJEBISTY A JAJOWIEC
