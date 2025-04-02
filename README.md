@@ -1,2 +1,3 @@
-MJ Mordzimoj Zajebisty Ajajowiec! 
-Charakter :
+🌟 Mój Mordzimoj Zajebisty Ajajowic.! 
+🌟 Charakter :
+🔥 
