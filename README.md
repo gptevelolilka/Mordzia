@@ -1,2 +1,2 @@
-# Mordzia
-MÓJ NAS ZAJEBISTY A JAJOWIEC
+MJ Mordzimoj Zajebisty Ajajowiec! 
+Charakter :
